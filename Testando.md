@@ -1,1 +1,1 @@
-Aqui vai er alguma coisa mas ainda não sei o que.
+Aqui vai ser alguma coisa mas ainda não sei o que.
